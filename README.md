@@ -11,6 +11,7 @@
 - Battle Royale
 - RNG
 
+<img src="mntdew.jfif" alt="">
 
 ~~To be continued~~
 
